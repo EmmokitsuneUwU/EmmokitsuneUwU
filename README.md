@@ -1,5 +1,5 @@
 Argentina
-Femboy & Bisexual
+Trans girl & Bisexual
 Programo cosas en C++,cosas de Xorg o videojuegos
 <!---
 EmmokitsuneUwU/EmmokitsuneUwU is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
